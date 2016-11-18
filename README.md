@@ -1,4 +1,4 @@
-# Awesome Influence list
+# Awesome Trump list
 
 Things to do:
 
