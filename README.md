@@ -1,5 +1,8 @@
 # Awesome Influence list
 
+Things to do:
+
+* Contact your representatives via phone (not via email or social media)
 * [re:act](http://eepurl.com/co65ar) is a weekly list of a few concrete things you can do to take action during the Trump presidency.
 
 ## Important Organizations that need support
