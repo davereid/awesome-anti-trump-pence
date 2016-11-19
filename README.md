@@ -2,9 +2,11 @@
 
 ## Things To Do:
 
-* Contact your representatives via phone (not via email or social media)
+* Call your senators and state representatives (not via email or social media)
+* Call Senate Majority Leader, Mitch McConnell 202-224-2541
+* Call the Speaker of the House, Paul Ryan at 202-225-0600
 * [re:act](http://tinyletter.com/re-act) is a weekly list of a few concrete things you can do to take action during the Trump presidency.
-* Call the House Oversight and Government Reform Committee at (202) 225-5074 and Representative Jason Chaffetz (chairman of the committee) at (202) 225-7751 to call for a bipartisan review of Trump’s financials and apparent conflicts of interest.
+* Call the House Oversight and Government Reform Committee at 202-225-5074 and Representative Jason Chaffetz (chairman of the committee) at 202-225-7751 to call for a bipartisan review of Trump’s financials and apparent conflicts of interest.
 * Find more sources on small actions that can be taken?
 
 ## Finding Your Representatives
@@ -16,6 +18,7 @@
 
 * "Hello, I am your constituent from [INSERT LOCATION] and I was wondering when [INSERT NAME] was planning on releasing a statement condemning Steve Bannon, the white supremacist who Donald Trump has appointed as his chief strategist.
 * "Hello, my name is [YOUR NAME] and I am your constituent from [LOCATION]. I know how important the values of freedom, opportunity, and decency are to you and all of the rest of us that you represent. [APPOINTEE/POLICY] flies in the face of those values. As my representative, I’m counting on you to stand up for America and oppose [x]."
+* "Hello, I am calling to oppose the appointments of Steve Bannon, Michael Flynn, and Jeff Sessions who all have a documented history of racism, xenophobia, bigotry, misogyny, and hate speech. Please act against this now. Thank you."
 
 ## Important Organizations Needing Support/Donations
 
