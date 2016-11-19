@@ -1,4 +1,4 @@
-# Awesome Trump list
+# Awesome Anti-Trump/Pence list
 
 ## Things To Do:
 
