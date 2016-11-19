@@ -4,7 +4,7 @@
 
 * Contact your representatives via phone (not via email or social media)
 * [re:act](http://tinyletter.com/re-act) is a weekly list of a few concrete things you can do to take action during the Trump presidency.
-* Call the House Oversight and Government Reform Committee at (202) 225-5074 and Rep Jason Chaffetz at (202) 225-7751 to call for a bipartisan review of Trump’s financials and apparent conflicts of interest.
+* Call the House Oversight and Government Reform Committee at (202) 225-5074 and Congressman Jason Chaffetz (chairman of the committee) at (202) 225-7751 to call for a bipartisan review of Trump’s financials and apparent conflicts of interest.
 * Find more sources on small actions that can be taken?
 
 ## Finding Your Representatives
