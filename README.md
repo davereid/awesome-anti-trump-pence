@@ -14,6 +14,7 @@
 * [Indivisible Guide](https://www.indivisibleguide.com/) [@indivisibleteam](https://twitter.com/indivisibleteam)
 * https://swingleft.org/
 * https://www.womensmarch.com/100
+* https://www.resistancemanual.org/Resistance_Manual_Home
 
 ## Finding Your Representatives
 
