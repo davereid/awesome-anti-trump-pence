@@ -16,10 +16,12 @@
 * https://www.womensmarch.com/100
 * https://www.resistancemanual.org/Resistance_Manual_Home
 * http://www.weekly-resistance.online/
+* http://whatdoidoabouttrump.com/action-hub/
 
 ## Finding Your Representatives
 
-* https://www.govtrack.us/congress/members/map
+* https://www.govtrack.us/congress/members/
+map
 * http://whoismyrepresentative.com/
 
 ## Scripts For Calling:
