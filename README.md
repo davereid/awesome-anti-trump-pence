@@ -15,6 +15,7 @@
 * https://swingleft.org/
 * https://www.womensmarch.com/100
 * https://www.resistancemanual.org/Resistance_Manual_Home
+* http://www.weekly-resistance.online/
 
 ## Finding Your Representatives
 
