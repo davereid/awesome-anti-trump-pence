@@ -24,8 +24,8 @@
 * https://docs.google.com/spreadsheets/d/1yq1NT9DZ2z3B8ixhid894e77u9rN5XIgOwWtTW72IYA/edit#gid=1473996386
 * https://whitehouseinc.org/
 * https://whcommentline.com/
-
-
+* https://callsforchange.com/
+* https://whatthefuckjusthappenedtoday.com/
 
 ## Finding Your Representatives
 
